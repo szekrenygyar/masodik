@@ -1,3 +1,4 @@
 # masodik
 this is dö második
-laccci
+this is dö first módifikésön EEEEEEEEEE
+törd modifikációne
